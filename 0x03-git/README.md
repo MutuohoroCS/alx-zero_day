@@ -1,1 +1,1 @@
-not empty i swear
+so anyway i started updating my readme file
